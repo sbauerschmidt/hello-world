@@ -2,3 +2,4 @@
 Phase 1
 bowie to bowie
 fish tacos for dinner again 
+thinking about coffee
